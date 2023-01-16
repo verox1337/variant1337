@@ -1,6 +1,3 @@
+💬 Discord variant#2475 | atlas.ac | variant.ac
 
-👋 Hello I'am Variant |
-
-💬 Discord variant#0001 | atlas.ac | variant.ac
-
-📧 Contact variant#0001
+📧 Contact variant#2475
